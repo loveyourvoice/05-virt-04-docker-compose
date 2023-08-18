@@ -4,7 +4,7 @@
 
 #Задание 2
 
-![Image](https://i.imgur.com/G2gatYH.png)
+![Image](https://i.imgur.com/zm3QVTP.png)
 
 #Задание 3
 
